@@ -1,4 +1,0 @@
-Christina-Osmun
-===============
-
-Personal Webpage
